@@ -1,4 +1,4 @@
 # le livre 01
 
-# chapitre 2 par GA
+## chapitre 1 par GA
 faut bien commencer
