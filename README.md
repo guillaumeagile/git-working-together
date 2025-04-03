@@ -1,8 +1,7 @@
-# git-working-together
+ Le matin de Léo
 
-#le pitch du livre (écrit par ChatGPT)
+## le draft du livre (écrit par ChatGPT)
 
-##Le matin de Léo
 
 ### P1
 Léo ouvrit les yeux difficilement lorsque le réveil sonna. Il était encore fatigué et aurait bien aimé rester sous sa couette chaude. Mais maman entra dans la chambre et tira doucement sur la couverture.
