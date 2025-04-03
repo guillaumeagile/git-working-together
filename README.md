@@ -1,5 +1,10 @@
 # Le matin de Léo
 
+nous allons en travail d'équipe écrire un livre pour enfant. En 4 chapitres.
+Une équipe de rédacteur par chapitre, plus 1 équipe PO (pour la ligne éditoriale) et une équipe QA pour la qualité.
+
+à vos git ! commit ! push ! 😆
+
 ## le draft du livre (écrit par ChatGPT)
 
 
