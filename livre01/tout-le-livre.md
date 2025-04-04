@@ -17,6 +17,4 @@ Dans la cuisine, un bon chocolat l'attendait. Il boit son bol et ses tartines, p
 
 ## chapitre 4
 
-Il a terminé son peti dej
-il se rue dans l'entree de la maison pour mettre son manteau, son sac à dos.
-IL Sort dans le froid et attrape son bus
+Il a terminé son petit déjeuner. Il se rue dans l'entree de la maison pour mettre son manteau, son sac à dos. Il sort dans le froid et attrape son bus
