@@ -13,7 +13,7 @@ Il prend sa brosse à dent, y ajoute un petit pois de dentifrice et se brosse tr
 Finalement il se met de l'eau sur le visage, wouhaaa, ça réveille !
 
 ## chapitre 3
-8h20, Dans la cuisine, un bon chocolat, des tartines, des oeufs, une quiche, un poulet roti, du fromage, un gratin, une tarte aux pommes, l'attendait. Il boit son bol et ses tartines, puit se prépare pour prendre le bus. 
+8h20, dans la cuisine, un bon chocolat, des tartines, des oeufs, une quiche, un poulet roti, du fromage, un gratin, une tarte aux pommes, l'attendait. Il boit son bol et ses tartines, puit se prépare pour prendre le bus. 
 
 ## chapitre 4
 
