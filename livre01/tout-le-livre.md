@@ -14,7 +14,7 @@ Finalement il se met de l'eau sur le visage, wouhaaa, ça réveille !
 Il est 8h10.
 
 ## chapitre 3
-Dans la cuisine, un bon chocolat l'attendait. Il boit son bol et ses tartines, puit se prépare pour prendre le bus. Il est 8h20
+Dans la cuisine, un bon chocolat, des tartines, des oeufs, une quiche, un poulet roti, du fromage, un gratin, une tarte aux pommes, l'attendait. Il boit son bol et ses tartines, puit se prépare pour prendre le bus. Il est 8h20
 
 ## chapitre 4
 
