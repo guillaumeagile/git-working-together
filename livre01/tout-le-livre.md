@@ -1,8 +1,8 @@
 # le livre 01
 
-## chapitre 1 par MB
+## chapitre 1
 
-7h45, le réveil sonne dans cette petite chambre d'étudiant, à l'espace si précieux.
+7h45, le réveil sonne dans cette petite chambre d'étudiant, à l'espace si précieux, digne d'une pub ikéa.
 Péniblement, il quitta le nid douillet de son lit pour se diriger vers la salle de bain.
 En chemin, il pris au hasard des vêtements sans faire attention aux couleurs.
 
