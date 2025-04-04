@@ -9,7 +9,7 @@ En chemin, il pris au hasard des vêtements sans faire attention aux couleurs.
 ## chapitre 3
 Dans la cuisine, un bon chocolat l'attendait. Il boit son bol et ses tartines, pui se prépare pour prendre le bus. Il est 8h20
 
-## chapitre 2 par Jérôme
+## chapitre 2
 Léo se met devant son miroir et baille aux corneilles !
 Il prend sa brosse à dent, y ajoute un petit pois de dentifrice et se brosse très tranquillement les dents en observant son reflet.
 Finalement il se met de l'eau sur le visage, wouhaaa, ça réveille !
