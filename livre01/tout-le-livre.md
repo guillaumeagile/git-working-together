@@ -18,4 +18,4 @@ Dans la cuisine, un bon chocolat, des tartines, des oeufs, une quiche, un poulet
 
 ## chapitre 4
 
-Il a terminé son petit déjeuner. Il se rue dans l'entree de la maison pour mettre son manteau, son sac à dos. Il sort dans le froid et attrape son bus
+Il a terminé son petit déjeuner. Il se rue dans l'entrée de la maison pour mettre son manteau, son sac à dos. Il sort dans le froid et attrape son bus
