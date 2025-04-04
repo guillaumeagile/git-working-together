@@ -14,3 +14,10 @@ Léo se met devant son miroir et baille aux corneilles !
 Il prend sa brosse à dent, y ajoute un petit pois de dentifrice et se brosse très tranquillement les dents en observant son reflet.
 Finalement il se met de l'eau sur le visage, wouhaaa, ça réveille !
 Il est 8h10.
+
+
+## chapitre 4
+
+Il a terminé son peti dej
+il se rue dans l'entree de la maison pour mettre son manteau, son sac à dos.
+IL Sort dans le froid et attrape son bus
