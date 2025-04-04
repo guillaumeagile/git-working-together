@@ -14,10 +14,8 @@ Finalement il se met de l'eau sur le visage, wouhaaa, ça réveille !
 Il est 8h10.
 
 ## chapitre 3
-Dans la cuisine, un bon chocolat l'attendait. Il boit son bol et ses tartines, pui se prépare pour prendre le bus. Il est 8h20
+Dans la cuisine, un bon chocolat l'attendait. Il boit son bol et ses tartines, puit se prépare pour prendre le bus. Il est 8h20
 
 ## chapitre 4
 
-Il a terminé son peti dej
-il se rue dans l'entree de la maison pour mettre son manteau, son sac à dos.
-IL Sort dans le froid et attrape son bus
+Il a terminé son petit déjeuner. Il se rue dans l'entree de la maison pour mettre son manteau, son sac à dos. Il sort dans le froid et attrape son bus
