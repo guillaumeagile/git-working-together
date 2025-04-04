@@ -24,8 +24,6 @@ Dans la cuisine, une bonne odeur de chocolat chaud l’accueillit. Il s’assit 
 
 — Dépêche-toi, Léo, le bus ne va pas t’attendre ! dit maman en regardant l’horloge. Il est 8h20
 
-Je vais tout casser !
-
 ### P4
 Léo termina son petit-déjeuner, mit son manteau et son sac à dos, puis sortit sur le trottoir. Il faisait un peu frais ce matin. Il vit au loin le bus jaune arriver et entendit son klaxon. Il est 8h30
 
