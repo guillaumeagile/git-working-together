@@ -17,4 +17,8 @@ Finalement il se met de l'eau sur le visage, wouhaaa, ça réveille !
 
 ## chapitre 4
 
-Il a terminé son petit déjeuner. Il se rue dans l'entrée de la maison pour mettre son manteau, son sac à dos. Il sort dans le froid et attrape son bus
+Il a terminé son petit déjeuner.
+Il se rue dans l'entree de la maison pour mettre son manteau, son sac à dos.
+Il sort dans le froid et rencontre Ema sur le chemin
+ils se disent bonjour et courent pour avoir le bus
+
