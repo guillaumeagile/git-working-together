@@ -2,9 +2,9 @@
 
 ## chapitre 1
 
-7h45, le réveil sonne dans cette petite chambre d'étudiant, à l'espace si précieux, digne d'une pub ikéa.
+7h45, le réveil sonne dans cette petite chambre d'étudiant, à l'espace si précieux, digne d'une pub Ikéa.
 Péniblement, il quitta le nid douillet de son lit pour se diriger vers la salle de bain.
-En chemin, il pris au hasard des vêtements sans faire attention aux couleurs.
+En chemin, il prit au hasard des vêtements sans faire attention aux couleurs.
 
 ## chapitre 2
 8h10, Léo rentre dans sa salle de bains, spatieuse et colorée ! Elle contient une douche à l'italienne, une grande baignoire et un lavabo très stylé devant un grand miroir.
