@@ -20,6 +20,6 @@ Finalement il se met de l'eau sur le visage, wouhaaa, ça réveille !
 
 Il a terminé son petit déjeuner.
 Il se rue dans l'entree de la maison pour mettre son manteau, son sac à dos.
-Il sort dans le froid et rencontre Ema sur le chemin
-ils se disent bonjour et courent pour avoir le bus
+Il sort dans le froid et rencontre Ema sur le chemin.
+Ils se disent bonjour et courent pour avoir le bus
 
