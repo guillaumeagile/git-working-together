@@ -15,3 +15,4 @@ Cependant les croissant n'était pas assez ! Il lui fallait plus !
 il décida d'acheter des chouquettes, des chocolatines, des chaussons aux pommes et en plus une brioche feuilletée !
 
 Que de délices ! Que de merveille ! Cependant patatrac, c'était trop lourd pour le sac. Bon allez, direction le supermarché.
+Juste pour example
