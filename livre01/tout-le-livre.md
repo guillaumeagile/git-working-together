@@ -8,11 +8,7 @@ La chambre de Léo était un havre de paix, avec des murs peints en bleu ciel et
 Léo, encore tout endormi se dirigea dans la salle de bains. Il fit couler de l'eau froide du robinet et s'aspergea le visage. Ensuite, il prit sa brosse à dents et se brossa énergiquement les dents.La salle de bains face au jardin, était illuminée par les rayons du soleil levant et donnait l'impression d'être immense.
 
 ## chapitre 3
-Dans la cuisine, une bonne odeur de chocolat chaud l'accuillit, mais Léo a plutôt demandé à sa maman des céréales.
+Dans la cuisine, une forte odeur de brulé attein les narines de Léo.
 
-Cependant il y avait actuellement une pénurie mondiale de céréales ! Ils décidèrent alors de partir de la maison sans manger et d'acheter des croissants sur la route.
+Il descendit les escaliers tout doucement, et vit une flamme au dessus de la poele ! C'était les oeufs brouillés qui brulaient !
 
-Cependant les croissant n'était pas assez ! Il lui fallait plus !
-il décida d'acheter des chouquettes, des chocolatines, des chaussons aux pommes et en plus une brioche feuilletée !
-
-Que de délices ! Que de merveille ! Cependant patatrac, c'était trop lourd pour le sac. Bon allez, direction le supermarché.
