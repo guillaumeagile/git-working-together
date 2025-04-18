@@ -13,3 +13,4 @@ Cependant il y avait actuellement une pénurie mondiale de céréales ! Ils déc
 
 Cependant les croissant n'était pas assez ! Il lui fallait plus !
 il décida d'acheter des chouquettes, des chocolatines, des chaussons aux pommes et en plus une brioche feuilletée !
+
