@@ -1,4 +1,5 @@
 # Le petit Léo
+Livre du petit Léo.
 
 ## chapitre 1 par GA
 Le soleil se levait doucement, ses rayons dorés pénétrèrent à travers les rideaux de la chambre. A 7H00, Léo, encore enveloppé dans les bras de Morphée, se débattait contre l'appel impitoyable du matin, ses paupières lourdes refusaient de céder. Chaque son de l'horloge semblait une torture, chaque minute une éternité, alors qu'il luttait pour émerger de son cocon de rêves.
@@ -13,6 +14,6 @@ Dans la cuisine, une bonne odeur de chocolat chaud l'accuillit, mais Léo a plut
 Cependant il y avait actuellement une pénurie mondiale de céréales ! Ils décidèrent alors de partir de la maison sans manger et d'acheter des croissants sur la route.
 
 Cependant les croissant n'était pas assez ! Il lui fallait plus !
-il décida d'acheter des chouquettes, des chocolatines, des chaussons aux pommes et en plus une brioche feuilletée !
+Il décida d'acheter des chouquettes, des chocolatines, des chaussons aux pommes et en plus une brioche feuilletée !
 
 Que de délices ! Que de merveille ! Cependant patatrac, c'était trop lourd pour le sac. Bon allez, direction le supermarché.
